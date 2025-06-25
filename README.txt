@@ -3,3 +3,4 @@ kawajiri 暑いな～
 SawayaItsuki シフト入れられた。だるい。
 suzukimao birds are good.
 こんにちは　にきです
+KanekoKoichi おなかすいてます
